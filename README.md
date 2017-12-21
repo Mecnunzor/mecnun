@@ -1,0 +1,2 @@
+# mecnun
+Ne Alacaktım ?
